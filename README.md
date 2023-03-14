@@ -6,4 +6,4 @@ j'omapel Stecy
 - 💬 Ask me about ...culture
 - 📫 How to reach me: ...asikostecy@gmail.com
 - ⚡ Fun fact: ...i like jokes and dancing 
--->
+✋✌👍🎶
